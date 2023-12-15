@@ -19,19 +19,14 @@ Close to her heart they of kind
 ```
 Few wrong words And she do mind...
 And then not intersted she in chat of any Kind
-```
-```
 Acting Like a royality of kind
 What is it? It escapes my mind
 ```
 ```
 Had to work hard to lighten her mind
 Her every words reflect her wise mind
-```
-```
 In just few words she Illuminates my mind
 Is there another of your kind
-
 ```
 ...........Kind Mind...........
 
