@@ -23,7 +23,7 @@ Acting Like a royality of kind
 What is it? It escapes my mind
 ```
 ```
-Had to work hard to lighten her mind
+Hard job to lighten her mind
 Her every word reflect her wise mind
 In just few words she Illuminates my mind
 Is there another of your kind
