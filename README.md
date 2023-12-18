@@ -38,7 +38,7 @@ Hard to forget someone really this kind
 ```
 ```
 Wind up was my mind Without a way to Find
-Just few words with her i see it was illusion of a Kind
+Just her few words and i see it was illusion of a Kind
 ```
 
 ```
